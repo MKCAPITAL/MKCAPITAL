@@ -1,4 +1,4 @@
-- 👋 Hi, I’m MK CEO @MKCAPITAL
+- 👋 Hi, I’m MK CEO @Farmers' Konnect.
 - 👀 I’m interested in mother Nature
 - 🌱 I’m currently learning more about Blockchain and cryptocurencies.
 - 💞️ I’m looking to collaborate with anybody doing  project or developing a solution as a fintech.
